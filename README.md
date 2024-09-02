@@ -35,7 +35,7 @@ https://drive.google.com/file/d/1ety1ZM0GxsEqglAVy2sFOZJJcmq5pgPo/view?usp=drive
 
 
 **Contact Information:**
-for licence and more info contact me on 
+For licence and api credit purchase contact me on 
 
 - **Email**: [terryhacker911@gmail.com](mailto:terryhacker911@gmail.com)
 - **Telegram**: [t.me/terryhacker911](https://t.me/terryhacker911)
